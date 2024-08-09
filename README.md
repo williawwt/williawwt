@@ -8,7 +8,7 @@ Meu nome é wallace william
   
   • Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-Você pode entrar em contato comigo 📫
+**Você pode entrar em contato comigo** 📫
 
 0001124436170SP@al.educacao.sp.gov.br
 
